@@ -31,4 +31,4 @@
   1|rajeev
   2|tarak
 [single take actor 💥](https://variety.com/wp-content/uploads/2021/11/NTR-jr.jpg?w=1000)
-
+[upma 😍](https://www.indianactorwiki.in/wp-content/uploads/2021/01/wp4027019-scaled.jpg)
