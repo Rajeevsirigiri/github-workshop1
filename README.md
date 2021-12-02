@@ -30,4 +30,5 @@
   ---|---
   1|rajeev
   2|tarak
-[single take actor](https://variety.com/wp-content/uploads/2021/11/NTR-jr.jpg?w=1000)
+[single take actor 💥](https://variety.com/wp-content/uploads/2021/11/NTR-jr.jpg?w=1000)
+
